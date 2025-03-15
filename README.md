@@ -1,5 +1,9 @@
 ## Hi there 👋
 
+If you looking for a special information about my work or simply wanna talk. Access my profile at [LinkedIn](https://www.linkedin.com/in/malvesamorim/).
+
+Best Regards!
+
 <!--
 **MarceloAmorim/MarceloAmorim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

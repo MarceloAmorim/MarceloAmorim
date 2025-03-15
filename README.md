@@ -1,6 +1,6 @@
 ## Hi there 👋 🇺🇸 🇬🇧 🇦🇺
 
-If you looking for a special information about my work or simply wanna talk. Access my profile at [LinkedIn](https://www.linkedin.com/in/malvesamorim/).
+If you are looking for information about my work or simply wanna talk. Access my profile at [LinkedIn](https://www.linkedin.com/in/malvesamorim/) and let's talk about.
 
 Best Regards!
 
@@ -8,7 +8,7 @@ Best Regards!
 
 ## Olá 👋 🇧🇷 🇵🇹
 
-Se você está procurando uma informação especial sobre meu trabalho ou simplesmente quer conversar. Acesse meu perfil no [LinkedIn](https://www.linkedin.com/in/malvesamorim/).
+Se você está procurando informação sobre meu trabalho ou simplesmente quer conversar. Acesse meu perfil no [LinkedIn](https://www.linkedin.com/in/malvesamorim/) e vamos conversar.
 
 Atenciosamente!
 
